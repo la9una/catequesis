@@ -23,6 +23,13 @@ Todos te responderán: ¡Míranos: somos bellos! Su belleza es como un himno de 
 [Simone Weil](https://es.wikipedia.org/wiki/Simone_Weil)
 
 
+>_La experiencia más hermosa que podemos tener es el misterio. Es la emoción fundamental que se posa en la cuna de la verdad y de la ciencia verdadera. Quien no la conoce y no se puede maravillar vale tanto como un muerto, y tiene los ojos ensombrecidos._
+>
+>_Las ideas que iluminaron mi camino, y que una y otra vez me dieron fuerzas para enfrentar la vida con alegría, son la bondad, la belleza y la verdad. Sin un sentido de la bondad, sin la ocupación por el mundo objetivo, sin lo enernamente inalcanzable en el campo del arte y la ciencia, la vida habría parecido vacía para mi. Los objetos triviales del esfuerzo humano -las posesiones, el éxito externo y los lujos- siempre me han parecido despreciables._
+
+[Albert Einstein](https://es.wikipedia.org/wiki/Albert_Einstein), "El mundo como yo lo veo", ensayo de 1930
+
+
 >_El ser humano es un buscador insaciable de la paz y de la felicidad. Ninguna adquisición de bienes materiales, ninguna situación vital, por satisfactoria que parezca, consigue detener esa búsqueda. Somos peregrinos hacia un destino de plenitud que no encontramos nunca del todo en el mundo._
 
 [Benedicto XVI](https://es.wikipedia.org/wiki/Benedicto_XVI), Dios es Amor. 20

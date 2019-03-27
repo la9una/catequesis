@@ -86,6 +86,33 @@ En este sentido, en el Libro de la Sabiduría encontramos dos motivos por los cu
 
 >_Vanos son por naturaleza todos los hombres que ignoran a y no alcanzan a conocer por los bienes visibles a Aquel-que-es, ni atendiendo a las obras, reconocieron al Artífice; sino que al fuego, al viento, al aire ligero, a la bóveda estrellada, al agua impetuosa o a las lumbreras del cielo los consideraron como dioses, rectores del universo. Si, seducidos por su belleza, los tuvieron como dioses, sepan cuánto les aventaja el Señor de todos ellos, pues es el Autor mismo de la belleza quien los creó. Y si se admiraron de su poder y de su fuerza, debieron deducir de aquí cuánto más poderoso es su Creador; pues, de la grandeza y de la belleza de las criaturas, se llega por razonamiento al claro conocimiento de su Autor. Con todo, no merecen éstos tan grave reprensión, pues tal vez caminan desorientados buscando a Dios y queriéndole hallar. Ocupados en sus obras, se esfuerzan en conocerlas, y se dejan seducir por lo que ven. ¡Tan bellas se presentan a sus ojos! Pero, por otra parte, tampoco son éstos excusables; porque, si llegaron a adquirir tanta ciencia y fueron capaces de investigar el universo, ¿Cómo no llegaron más fácilmente a descubrir a su Señor? (Sabiduría 13, 1-9)._
 
+Muchos hombres de ciencia, con atitud de asombro ante la perfección de la creación, se han manifestado: 
+
+>“Yo no he hecho más que buscar las leyes de Dios en el libro de la naturaleza"
+[G. Marconi](https://es.wikipedia.org/wiki/Guillermo_Marconi)
+
+>"El hombre encuentra a Dios detrás de cada puerta que la ciencia logra abrir" 
+[A. Einstein](https://es.wikipedia.org/wiki/Albert_Einstein)
+
+>"Me basta con examinar una brizna de hierba, o un puñado de tierra, para confirmar la existencia de Dios." 
+[Isaac Newton](https://es.wikipedia.org/wiki/Isaac_Newton)
+
+>“El conocimiento científico complementa la fe en Dios, en lugar de contradecirla” 
+[Francis Collins](https://es.wikipedia.org/wiki/Francis_Collins)
+
+>“La obra maestra más fina es la hecha por Dios, según los principios de la mecánica cuántica” 
+[Erwin Schrödinger](https://es.wikipedia.org/wiki/Erwin_Schr%C3%B6dinger)
+
+>“Dios está para el creyente en el principio de sus discursos, para el físico, en el término de los mismos” 
+[Max Plank](https://es.wikipedia.org/wiki/Max_Planck)
+
+>"La fuerza viva (energía) es un don con el que Dios ha dotado a la naturaleza y por tanto ésta no puede ser creada ni destruida" 
+[J. P. Joule](https://es.wikipedia.org/wiki/James_Prescott_Joule)
+
+>“No tengáis miedo de ser libres pensadores. Si piensas con suficiente fuerza, la ciencia te obligará a creer en Dios" 
+[Lord Kelvin](https://es.wikipedia.org/wiki/William_Thomson)
+
+
 
 ### b) Conocimiento de Dios por los grados de perfección
 

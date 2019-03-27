@@ -10,6 +10,9 @@ El Concilio Vaticano I (1869-1870), definió la posibilidad universal de conocer
 Las pruebas más tradicionales para demostrar la existencia de Dios son estas cinco vías expuestas de modo magistral por Santo Tomás de Aquino (“Suma Teológica”, Prima pars, cuestión 2, artículo 3). Estas vías son cinco argumentos a posteriori (a partir de las cosas más conocidas por el hombre) que demuestran la existencia de Dios.
 
 
+![Santo Tomás de Aquino](imgCreemos/santo_tomas.jpg)
+
+
 ### Primera vía: Se funda en el movimiento
 
 1. Es innegable, y consta a nuestros sentidos, que hay cosas que se mueven, es decir, que cambian. No se trata sólo del movimiento en sentido físico (locomoción), sino en sentido metafísico, es decir, como paso de la potencia al acto (cambios de una condición a otra, de un ser a otro, etcétera).
@@ -87,6 +90,9 @@ En este sentido, en el Libro de la Sabiduría encontramos dos motivos por los cu
 >_Vanos son por naturaleza todos los hombres que ignoran a y no alcanzan a conocer por los bienes visibles a Aquel-que-es, ni atendiendo a las obras, reconocieron al Artífice; sino que al fuego, al viento, al aire ligero, a la bóveda estrellada, al agua impetuosa o a las lumbreras del cielo los consideraron como dioses, rectores del universo. Si, seducidos por su belleza, los tuvieron como dioses, sepan cuánto les aventaja el Señor de todos ellos, pues es el Autor mismo de la belleza quien los creó. Y si se admiraron de su poder y de su fuerza, debieron deducir de aquí cuánto más poderoso es su Creador; pues, de la grandeza y de la belleza de las criaturas, se llega por razonamiento al claro conocimiento de su Autor. Con todo, no merecen éstos tan grave reprensión, pues tal vez caminan desorientados buscando a Dios y queriéndole hallar. Ocupados en sus obras, se esfuerzan en conocerlas, y se dejan seducir por lo que ven. ¡Tan bellas se presentan a sus ojos! Pero, por otra parte, tampoco son éstos excusables; porque, si llegaron a adquirir tanta ciencia y fueron capaces de investigar el universo, ¿Cómo no llegaron más fácilmente a descubrir a su Señor? (Sabiduría 13, 1-9)._
 
 Muchos hombres de ciencia, con atitud de asombro ante la perfección de la creación, se han manifestado: 
+
+![Albert Einstein](imgCreemos/einstein.jpg)
+
 
 >“Yo no he hecho más que buscar las leyes de Dios en el libro de la naturaleza"
 [G. Marconi](https://es.wikipedia.org/wiki/Guillermo_Marconi)

@@ -93,7 +93,6 @@ Muchos hombres de ciencia, con atitud de asombro ante la perfección de la creac
 
 ![Albert Einstein](imgCreemos/einstein.jpg)
 
-
 >“Yo no he hecho más que buscar las leyes de Dios en el libro de la naturaleza"
 [G. Marconi](https://es.wikipedia.org/wiki/Guillermo_Marconi)
 
@@ -119,7 +118,6 @@ Muchos hombres de ciencia, con atitud de asombro ante la perfección de la creac
 [Lord Kelvin](https://es.wikipedia.org/wiki/William_Thomson)
 
 
-
 ### b) Conocimiento de Dios por los grados de perfección
 
 Los grados de perfección que el hombre conoce en la naturaleza reflejan la perfección absoluta de un Dios único y personal, al que todos los hombres son llamados a adorar y a seguir.
@@ -127,8 +125,6 @@ Los grados de perfección que el hombre conoce en la naturaleza reflejan la perf
 >_La cólera de Dios se revela desde el cielo contra la impiedad e injusticia de los hombres, que aprisionan la verdad en la injusticia; pues lo que de Dios se puede conocer, está en ellos manifiesto: Dios se lo manifestó. Porque las perfecciones invisibles de Dios, su poder eterno y su divinidad, se han hecho visibles después de la creación del mundo por el conocimiento que de ellas nos dan las criaturas, de forma que son inexcusables; porque, habiendo conocido a Dios, no le glorificaron como a Dios ni le dieron gracias, antes bien se ofuscaron en vanos razonamientos, y su insensato corazón se llenó de tinieblas: jactándose de sabios se volvieron estúpidos, y cambiaron la gloria del Dios incorruptible por una representación en forma de hombre corruptible, de aves, de cuadrúpedos, de reptiles. Por eso, Dios los entregó a las apetencias de su corazón hasta una impureza tal que deshonraron entre sí sus cuerpos; a ellos que cambiaron la verdad de Dios por la mentira, y adoraron y sirvieron a la criatura en vez del Creador, que es bendito por los siglos. Amén. (Rom 1, 18-25; ver Hech 14, 14-18; 17, 22-30)._
 
 En esta carta, el Apóstol San Pablo enseña claramente que el que no reconoce a Dios lo hace por opción libre, pues no se trata sólo de no percibir lo invisible de Dios en las cosas visibles, sino de un cerrazón del corazón que no quiere reconocer a Dios como Señor, y le niega el dominio sobre el hombre y sobre las cosas. Así, el hombre se degrada, no es capaz de reconocer su puesto en un mundo que se ha convertido en desordenado y caótico, y no acierta a descubrir la dimensión divina que aflora en todas las cosas.
-
-
 
 ### c) El testimonio de la conciencia
 

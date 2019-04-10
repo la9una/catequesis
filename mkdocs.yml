@@ -64,3 +64,16 @@ markdown_extensions:
 
 extra_javascript:
   - 'https://cdnjs.cloudflare.com/ajax/libs/mathjax/2.7.4/MathJax.js?config=TeX-MML-AM_CHTML'
+
+######################################################################
+### DOCUMENTACIÓN ####################################################
+######################################################################
+
+# Páginas
+nav: 
+- Inicio: 'index.md'
+- Creemos: 
+    - Preguntas fundamentales: 'creemos/hierofanias.md'
+    - Razones para creer: 'creemos/las5vias.md'
+    - Ley Natural: 'creemos/leynatural.md'
+- Cuestionario: 'creemos/cuestionario.md'

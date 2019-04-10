@@ -8,5 +8,9 @@ Recursos sobre el tema de la Ley Natural
 
 
 ## Moral Natural
-* [Ley Moral Natural - Catecismo de la Iglesia Católica](http://www.vatican.va/archive/catechism_sp/p3s1c3a1_sp.html)
+* [El hombre es "capaz" de Dios](http://www.vatican.va/archive/catechism_sp/p3s1c1a6_sp.html)
 * [La conciencia moral  - Catecismo de la Iglesia Católica](http://www.vatican.va/archive/catechism_sp/p3s1c1a6_sp.html)
+* [Ley Moral Natural - Catecismo de la Iglesia Católica](http://www.vatican.va/archive/catechism_sp/p3s1c3a1_sp.html)
+
+
+

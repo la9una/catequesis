@@ -6,3 +6,4 @@
 4. Realizá una red conceptual sobre los términos "Ley Moral Natural" y "Conciencia moral" en el Catecismo de la Iglesia Católica
 5. ¿En qué sentido, la experiencia personal constituye para algunas personas un camino de conocimiento de Dios?
 6. "El hombre, pequeña parte de tu creación, quiere alabarte. Tú mismo le incitas a ello, haciendo que encuentre sus delicias en tu alabanza, porque nos has hecho para ti y nuestro corazón está inquieto mientras no descansa en ti", dice San Agustín. ¿Como ha de comprenderse la realidad teológica conocida como "El hombre es capaz de Dios"?
+7. El abordaje actual multidisciplinar describe al ser humano como una realidad "bio-psico-socio-espiritual". Da al menos un ejemplo de cada aspecto en donde se verifique la presencia de la Ley Natural.

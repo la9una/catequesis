@@ -101,3 +101,12 @@
 22 Después el Señor Dios dijo: «El hombre ha llegado a ser como uno de nosotros en el conocimiento del bien y del mal. No vaya a ser que ahora extienda su mano, tome también del árbol de la vida, coma y viva para siempre».
 23 Entonces expulsó al hombre del jardín de Edén, para que trabajara la tierra de la que había sido sacado.
 24 Y después de expulsar al hombre, puso al oriente del jardín de Edén a los querubines y la llama de la espada zigzagueante para custodiar el acceso al árbol de la vida.
+
+## Cuestionario
+1. ¿Cómo es la imagen de Dios que presenta Gn 1, 1-31; 2,1-4a?
+2. Tomando el relato anterior, indicá el orden que sigue Dios en relación a las cosas y seres creados. 
+3. ¿Cómo es la imagen de Dios que se presenta en Gn 2, 4b-25?
+4. Describí el orden que sigue Dios en su acto creador. 
+5. ¿Cuáles son las primeras palabras que pronuncia Dios en el relato del punto 3?
+6. ¿Cuál es la explicación de tan diversos estilos literarios en el relato de la creación?
+7. ¿En qué época fue escruto y por quién, el libro del Génesis?

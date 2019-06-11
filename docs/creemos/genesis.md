@@ -110,3 +110,10 @@
 5. ¿Cuáles son las primeras palabras que pronuncia Dios en el relato del punto 3?
 6. ¿Cuál es la explicación de tan diversos estilos literarios en el relato de la creación?
 7. ¿En qué época fue escruto y por quién, el libro del Génesis?
+
+## Recursos
+
+* [La Creación en el catecismo de la Iglesia Católica](http://www.vatican.va/archive/catechism_sp/p1s2c1p4_sp.html)
+* [El origen del Universo - Universidad de Navarra](https://www.slideshare.net/GrupoCRYF/el-origen-del-universo-82057287)
+* [La Creación - Parte I](https://catolicosconaccion.com/2013/10/17/la-creacion-parte-i/)
+* [La Creación - Parte II](https://catolicosconaccion.com/2014/02/28/la-perfecta-creacion-de-dios/) 

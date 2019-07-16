@@ -1,0 +1,1 @@
+[La Sagrada Escritura en el Catcismo de la Iglesia Católica](http://www.vatican.va/archive/catechism_sp/p1s1c2a3_sp.html)

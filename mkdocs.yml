@@ -79,5 +79,8 @@ nav:
     - Ley Natural: 'creemos/leynatural.md'
     - Cuestionario: 'creemos/cuestionario.md'
     - Trabajo práctico: 'creemos/trabajoPractico.md'
-    - La Creación: 'creemos/genesis.md'
+- Palabra de Dios:
+    - Relato de la Creación: 'palabra/genesis.md'
+    - Cuestionario Gn: 'palabra/genesisCuestionario.md'
+    - Hermenéutica: 'palabra/hemeneutica.md'
 

@@ -4,3 +4,7 @@
 
 Marcos 10, 46-52
 
+### Recursos
+
+[Lectio Divina - Pastoral de la JUventud](http://pastoraldejuventud.org.ar/instituto/wordpress/wp-content/uploads/2012/08/Lectio-Divina-3-CLJ.pdf)
+

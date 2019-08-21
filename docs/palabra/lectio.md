@@ -4,12 +4,14 @@
 
 ## Texto 1 "Maestro, que yo pueda ver"
 
-_Lectio desarrollada en clase_
-
-
 >**46** "Después llegaron a Jericó. Cuando Jesús salía de allí, acompañado de sus discípulos y de una gran multitud, el hijo de Timeo –Bartimeo, un mendigo ciego– estaba sentado junto al camino. **47** Al enterarse de que pasaba Jesús, el Nazareno, se puso a gritar: «¡Jesús, Hijo de David, ten piedad de mí!». **48** Muchos lo reprendían para que se callara, pero él gritaba más fuerte: «¡Hijo de David, ten piedad de mí!». **49** Jesús se detuvo y dijo: «Llámenlo». Entonces llamaron al ciego y le dijeron: «¡Animo, levántate! El te llama». **50** Y el ciego, arrojando su manto, se puso de pie de un salto y fue hacia él. **51** Jesús le preguntó: «¿Qué quieres que haga por ti?. El le respondió: «Maestro, que yo pueda ver». **52** Jesús le dijo: «Vete, tu fe te ha salvado». En seguida comenzó a ver y lo siguió por el camino".
 
 Marcos 10, 46-52
+
+### Consignas
+
+_Desarrollado en clase_
+
 
 ## Texto 2: "Hoy tengo que alojarme en tu casa"
 
@@ -30,7 +32,7 @@ Lucas 19, 1-10
 
 1. Preparación del lugar: describí en que espacio físico y temporal realizarías el ejercicio. 
 2. Invocación al Espíritu Santo: escribí una oración al Espíritu Santo. 
-3. Lectura: leé el texto sugerido con detenimiento y elaborá una grilla con los siguientes campos lexicales: personajes, lugares, acciones, diálogos y adjetivos.
+3. Lectura: a) Investigá sobre el contexto histórico del relato, el rol de los publicanos, sobre la cuidad de Jericó, los sicomoros, etc. b) Leé el texto sugerido con detenimiento y elaborá una grilla con los siguientes campos lexicales: personajes, lugares, acciones, diálogos y adjetivos.
 4. Meditación: formulá al menos 7 preguntas que ayuden a meditar sobre el texto dado. 
 5. Oración: escribí una oración personal, que guarde vinculación con el texo dado, de al menos 5 renglones de extensión. 
 6. Contemplación / Acción: escribí al menos dos propósitos en orden a aplicar  en tu proppia vida, la Palabra reflexionada. 

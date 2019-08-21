@@ -38,6 +38,6 @@ Lucas 19, 1-10
 6. Contemplación / Acción: escribí al menos dos propósitos en orden a aplicar  en tu proppia vida, la Palabra reflexionada. 
 
 #### NOTAS
-1. Entregar trabajo de manera individual, impreso con carátula, fuente tamaño 11 px. 
-2. El trabajo será entregado el 28/08 e incluye coloquio. 
-3. A modo de sugerencia, se ofrece el siguiente [ejemplo de Lectio Divina](http://lectionautas.com/site/files/lectio/2k16/06/Domingo_5_de_junio_de_2016_X_Domingo_TO.pdf) a modo de orientación. 
+1. Entregar trabajo de manera individual, impreso en tamaño A4 con carátula, fuente tamaño 11 px. 
+2. El trabajo es individual y será entregado el 28/08. Incluye coloquio. 
+3. A modo de sugerencia, se ofrece el siguiente [ejemplo de Lectio Divina](http://lectionautas.com/site/files/lectio/2k16/06/Domingo_5_de_junio_de_2016_X_Domingo_TO.pdf). 

@@ -1,10 +1,10 @@
-## Cómo se llega a ser Santo
+# Cómo se llega a ser Santo
 
 Desde la época del papa San Clemente en el siglo I, se empezaron a investigar los procesos y las actas de martirio de los cristianos que habían sido sacrificados en tiempos de las persecuciones del imperio romano.
 
 En los primeros siglos del cristianismo, se hicieron famosas las peregrinaciones como la ruta de Santiago de Compostela en España, o la tumba de los santos apóstoles Pedro y Pablo en Roma.
 
-El papa Sixto V, creó en el año 1588 la congregación para la de la Causa de los Santos, quienes investigan cuidadosamente todos los detalles de la vida, los escritos y los milagros de los “presuntos” siervos de Dios.
+El papa Sixto V, creó en el año 1588 la congregación para la de la Causa de los Santos, quienes investigan cuidadosamente todos los detalles de la vida, los escritos y los milagros de los “presuntos siervos de Dios.
 
 Dejando de lado el caso de los mártires, que no necesitan seguir el proceso ordinario para llegar a los altares, los pasos que se siguen son los siguientes:
 
@@ -29,3 +29,13 @@ Dejando de lado el caso de los mártires, que no necesitan seguir el proceso ord
 Hay que aclarar que ningún santo(a) -incluyendo a la virgen María- pueden hacer un milagro.
 
 _Tomado de: http://www.donorione.org.ar/Santo/comosellega.htm_
+
+## Cuestionario
+
+1. ¿Qué función cumple la "Congregación para las Causas de los Santos"?
+2. ¿Quiénes pueden ser proclamados santos sin atravesar el proceso de canonización? ¿Por qué?
+3. ¿A partir de cuándo se puede comenzar el proceso de canonización de una persona?
+4. ¿Cuáles son las distintas etapas del proceso de canonización? ¿Qué condiciones deben observarse para pasar de una etapa a otra?
+5. Realizá una breve semblanza de al menos tres personalizades argentinas que hayan sido elevadas a los altares. 
+6. ¿En qué consiste la "Cominión de los Santos" según la perspectiva cristiana católica?
+7. ¿Cuál es el rol de los santos dentro de la Iglesia Católica?

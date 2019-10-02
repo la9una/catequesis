@@ -32,10 +32,11 @@ _Tomado de: http://www.donorione.org.ar/Santo/comosellega.htm_
 
 ## Cuestionario
 
-1. ¿Qué función cumple la "Congregación para las Causas de los Santos"?
+1. ¿Qué función cumple la "Congregación para las Causas de los Santos"? [Wikipedia](https://es.wikipedia.org/wiki/Congregaci%C3%B3n_para_las_Causas_de_los_Santos) | [Sitio Oficial del Vaticano](http://www.vatican.va/roman_curia/congregations/csaints/index_sp.htm)
 2. ¿Quiénes pueden ser proclamados santos sin atravesar el proceso de canonización? ¿Por qué?
 3. ¿A partir de cuándo se puede comenzar el proceso de canonización de una persona?
 4. ¿Cuáles son las distintas etapas del proceso de canonización? ¿Qué condiciones deben observarse para pasar de una etapa a otra?
-5. Realizá una breve semblanza de al menos tres personalizades argentinas que hayan sido elevadas a los altares. 
-6. ¿En qué consiste la "Cominión de los Santos" según la perspectiva cristiana católica?
-7. ¿Cuál es el rol de los santos dentro de la Iglesia Católica?
+5. Realizá una breve semblanza de al menos tres personalizades argentinas que hayan sido elevadas a los altares. Podés guiarte con la información publicada por la Conferencia Episcopal Argentina, al respecto, en la siguiente dirección web: [www.causasdelossantosenargentina.org](http://www.causasdelossantosenargentina.org/?s=causa_argentina)
+6. ¿En qué consiste la "Comunión de los Santos" según la perspectiva cristiana católica? Para responder a esta pregunta, podés consultar el siguiente [artículo](https://www.religionenlibertad.com/opinion/826554864/Creo-en-la-Comunion-de-los-Santos.html) o [este](), entre otros.
+7. ¿Cuál es el propósito que persigue la Iglesia Católica al proponernos los santos? 
+8. Leé con atención, la [homilía de San Juan Pablo II en ocación de la Beatificación de Pier Giorgio Frassati](http://www.pgfrassati.com.ar/HomeDiscursos.htm). Subrayá y comentá 5 aspectos que considerás centrales para hacer posible la santidad cristiana.  

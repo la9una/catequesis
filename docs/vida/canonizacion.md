@@ -1,4 +1,23 @@
-# Cómo se llega a ser Santo
+A continuación, se deja en el enlace para descargar el **TP sobre santidad y el proceso de canonización en la Iglesia Católica**, así como enlaces útiles. 
+
+[Descargá el trabajo práctico sobre la santidad](docsVida/tp_santidad.pdf)
+
+### Congregación para las Causas de los Santos
+* [Wikipedia](https://es.wikipedia.org/wiki/Congregaci%C3%B3n_para_las_Causas_de_los_Santos)
+* [Sitio Oficial del Vaticano](http://www.vatican.va/roman_curia/congregations/csaints/index_sp.htm)
+
+### Causas argentinas
+* [www.causasdelossantosenargentina.org](http://www.causasdelossantosenargentina.org/?s=causa_argentina)
+
+### Comunión de los santos
+
+* [Adelante la Fe](https://adelantelafe.com/catecismo-para-ninos-la-comunion-de-los-santos/)
+* [Catecismo de la Iglesia Católica](http://www.vatican.va/archive/catechism_sp/p123a9p5_sp.html)
+
+### Beatificación de PIer Giorgio Frassati
+* [Homilía de San Juan Pablo II en ocación de la Beatificación de Pier Giorgio Frassati](http://www.pgfrassati.com.ar/HomeDiscursos.htm)
+
+### Anexo: Cómo se llega a ser santo
 
 Desde la época del papa San Clemente en el siglo I, se empezaron a investigar los procesos y las actas de martirio de los cristianos que habían sido sacrificados en tiempos de las persecuciones del imperio romano.
 
@@ -30,13 +49,3 @@ Hay que aclarar que ningún santo(a) -incluyendo a la virgen María- pueden hace
 
 _Tomado de: http://www.donorione.org.ar/Santo/comosellega.htm_
 
-## Cuestionario
-
-1. ¿Qué función cumple la "Congregación para las Causas de los Santos"? [Wikipedia](https://es.wikipedia.org/wiki/Congregaci%C3%B3n_para_las_Causas_de_los_Santos) | [Sitio Oficial del Vaticano](http://www.vatican.va/roman_curia/congregations/csaints/index_sp.htm)
-2. ¿Quiénes pueden ser proclamados santos sin atravesar el proceso de canonización? ¿Por qué?
-3. ¿A partir de cuándo se puede comenzar el proceso de canonización de una persona?
-4. ¿Cuáles son las distintas etapas del proceso de canonización? ¿Qué condiciones deben observarse para pasar de una etapa a otra?
-5. Realizá una breve semblanza de al menos tres personalizades argentinas que hayan sido elevadas a los altares. Podés guiarte con la información publicada por la Conferencia Episcopal Argentina, al respecto, en la siguiente dirección web: [www.causasdelossantosenargentina.org](http://www.causasdelossantosenargentina.org/?s=causa_argentina)
-6. ¿En qué consiste la "Comunión de los Santos" según la perspectiva cristiana católica? Para responder a esta pregunta, podés consultar el siguiente [artículo](https://www.religionenlibertad.com/opinion/826554864/Creo-en-la-Comunion-de-los-Santos.html) o [este](), entre otros.
-7. ¿Cuál es el propósito que persigue la Iglesia Católica al proponernos los santos? 
-8. Leé con atención, la [homilía de San Juan Pablo II en ocación de la Beatificación de Pier Giorgio Frassati](http://www.pgfrassati.com.ar/HomeDiscursos.htm). Subrayá y comentá 5 aspectos que considerás centrales para hacer posible la santidad cristiana.  

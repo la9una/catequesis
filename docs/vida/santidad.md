@@ -21,59 +21,59 @@ _Fuente: [Catholic Link](https://catholic-link.com/imagenes/galeria-doctores-de-
 
 ??? info "El País de los Pozos (versión texto)"
 
-        Era el país de los pozos. Cualquier visitante extraño que llegara a aquel país no vería más que pozos: grandes, pequeños, feos, hermosos, ricos, pobres… Alrededor de los pozos apenas se veía vegetación; la tierra estaba reseca.
+    Era el país de los pozos. Cualquier visitante extraño que llegara a aquel país no vería más que pozos: grandes, pequeños, feos, hermosos, ricos, pobres… Alrededor de los pozos apenas se veía vegetación; la tierra estaba reseca.
 
-        Los pozos hablaban entre sí, pero a distancia; siempre había tierra de por medio. En realidad, lo único que hablaba era el brocal: lo que se ve a ras de tierra.
+    Los pozos hablaban entre sí, pero a distancia; siempre había tierra de por medio. En realidad, lo único que hablaba era el brocal: lo que se ve a ras de tierra.
 
-        Y daba la impresión de que, al hablar, sonaba a hueco. Porque claro, procedía de lugares huecos…
-        Como el brocal estaba hueco, en los pozos se producía una sensación de vacío, vértigo, ansiedad…
-        Y cada uno tendía a llenarlo como podía: con cosas, ruidos, sensaciones raras, y hasta con libros y sabiduría…
-        Entre los pozos los había con un gran brocal en el que cabían muchas cosas.
-        Las cosas pasaban de moda; entonces los pozos las cambiaban, y continuamente estaban llenando el brocal de cosas nuevas, diferentes… y quien más tenía era más respetado y admirado…
+    Y daba la impresión de que, al hablar, sonaba a hueco. Porque claro, procedía de lugares huecos…
+    Como el brocal estaba hueco, en los pozos se producía una sensación de vacío, vértigo, ansiedad…
+    Y cada uno tendía a llenarlo como podía: con cosas, ruidos, sensaciones raras, y hasta con libros y sabiduría…
+    Entre los pozos los había con un gran brocal en el que cabían muchas cosas.
+    Las cosas pasaban de moda; entonces los pozos las cambiaban, y continuamente estaban llenando el brocal de cosas nuevas, diferentes… y quien más tenía era más respetado y admirado…
 
-        Pero, en el fondo, no estaban a gusto nunca con lo que tenían. El brocal estaba siempre reseco y sediento…
-        ¿He dicho “en el fondo”?
-        Bueno, sí: la mayoría, a través de los entresijos que dejaban las cosas, percibían en su interior algo misterioso… sus dedos rozaban en ocasiones el agua del fondo.
+    Pero, en el fondo, no estaban a gusto nunca con lo que tenían. El brocal estaba siempre reseco y sediento…
+    ¿He dicho “en el fondo”?
+    Bueno, sí: la mayoría, a través de los entresijos que dejaban las cosas, percibían en su interior algo misterioso… sus dedos rozaban en ocasiones el agua del fondo.
 
-        Ante aquella sensación tan rara, unos sintieron miedo y procuraron no volver a sentirla.
-        Otros, encontraban tanta dificultad a causa de las cosas que abarrotaban el brocal, que se rindieron pronto, y optaron por olvidar aquello que había “en el fondo”…
+    Ante aquella sensación tan rara, unos sintieron miedo y procuraron no volver a sentirla.
+    Otros, encontraban tanta dificultad a causa de las cosas que abarrotaban el brocal, que se rindieron pronto, y optaron por olvidar aquello que había “en el fondo”…
 
-        También se hablaba –en la superficie- de aquellas “experiencias profundas” que muchos sentían… pero había quien se reía, bastantes, y decían que todo eso eran ilusiones…; que no había más realidad que el brocal y las cosas que entraban en el hueco.
+    También se hablaba –en la superficie- de aquellas “experiencias profundas” que muchos sentían… pero había quien se reía, bastantes, y decían que todo eso eran ilusiones…; que no había más realidad que el brocal y las cosas que entraban en el hueco.
 
-        Pero hubo alguno que empezó a mirar hacia dentro… y, entusiasmado con aquella sensación que experimentaba en su profundidad, trató de calar  más.
-        Como las cosas que había ido acumulando le molestaban, prefirió librarse de ellas, y las arrojó fuera de sí. Y el ruido lo fue eliminando., hasta quedarse en silencio.
+    Pero hubo alguno que empezó a mirar hacia dentro… y, entusiasmado con aquella sensación que experimentaba en su profundidad, trató de calar  más.
+    Como las cosas que había ido acumulando le molestaban, prefirió librarse de ellas, y las arrojó fuera de sí. Y el ruido lo fue eliminando., hasta quedarse en silencio.
 
-        Entonces, en el silencio del brocal, oyó burbujear el agua allá abajo… y sintió una paz enorme, una paz viva, que venía de la profundidad.
-        Y ya no eran sólo las manos, sino los brazos, y… todo el pozo, el que se refrescaba y saciaba su sed en el agua.
+    Entonces, en el silencio del brocal, oyó burbujear el agua allá abajo… y sintió una paz enorme, una paz viva, que venía de la profundidad.
+    Y ya no eran sólo las manos, sino los brazos, y… todo el pozo, el que se refrescaba y saciaba su sed en el agua.
 
-        Entonces el pozo experimentó que “aquello” justamente era su razón de ser; allí, en el fondo, se sentía él mismo. Hasta entonces había creído que el ser pozo era el tener un gran brocal, muy rico adornado, bien lleno de cosas. 
-        
-        Y así, mientras otros pozos trataban de agrandar su brocal, para que el hueco fuese mayor y cupieran más cosas, éste, buceando en su interior, descubría que lo mejor de sí mismo estaba en la profundidad, y que era “más pozo” cuanto más profundidad tenía.
+    Entonces el pozo experimentó que “aquello” justamente era su razón de ser; allí, en el fondo, se sentía él mismo. Hasta entonces había creído que el ser pozo era el tener un gran brocal, muy rico adornado, bien lleno de cosas. 
+    
+    Y así, mientras otros pozos trataban de agrandar su brocal, para que el hueco fuese mayor y cupieran más cosas, éste, buceando en su interior, descubría que lo mejor de sí mismo estaba en la profundidad, y que era “más pozo” cuanto más profundidad tenía.
 
-        Feliz por su descubrimiento, intentó comunicarlo, y comenzó a sacar agua de su interior, y el agua, al salir fuera, refrescaba la tierra reseca y la hacía fértil y `pronto brotaron las flores alrededor del pozo.
+    Feliz por su descubrimiento, intentó comunicarlo, y comenzó a sacar agua de su interior, y el agua, al salir fuera, refrescaba la tierra reseca y la hacía fértil y `pronto brotaron las flores alrededor del pozo.
 
-        La noticia cundió enseguida. Las reacciones fueron muy variadas: unos se mostraron escépticos ante el descubrimiento; otros sintieron la nostalgia de algo que, en el fondo, también ellos lo percibían. Otros despreciaron aquel “alarde de poesía”, como lo llamaron. Hubo a quien le pareció una pérdida de tiempo aquel trabajo de sacar agua de su interior…
-        Y la mayoría optó por no hacer caso, pues la verdad es que estaban muy ocupados rellenando de cosas el brocal, y ya se habían acostumbrado a la satisfacción que el tener les producía, y se sentían a gusto en el ruido, y estaban contentos con las sensaciones que experimentaban desde fuera…
-        Sin embargo, algunos intentaron la experiencia, y, tras liberarse de las cosas que les rellenaban, encontraron también el agua de su interior.
-        A partir de entonces las sorpresas para éstos fueron en aumento: comprobaron que, por más agua que sacaban de su interior para esparcirla en torno suyo, no se vaciaban, sino que se sentían más frescos, renovados…
+    La noticia cundió enseguida. Las reacciones fueron muy variadas: unos se mostraron escépticos ante el descubrimiento; otros sintieron la nostalgia de algo que, en el fondo, también ellos lo percibían. Otros despreciaron aquel “alarde de poesía”, como lo llamaron. Hubo a quien le pareció una pérdida de tiempo aquel trabajo de sacar agua de su interior…
+    Y la mayoría optó por no hacer caso, pues la verdad es que estaban muy ocupados rellenando de cosas el brocal, y ya se habían acostumbrado a la satisfacción que el tener les producía, y se sentían a gusto en el ruido, y estaban contentos con las sensaciones que experimentaban desde fuera…
+    Sin embargo, algunos intentaron la experiencia, y, tras liberarse de las cosas que les rellenaban, encontraron también el agua de su interior.
+    A partir de entonces las sorpresas para éstos fueron en aumento: comprobaron que, por más agua que sacaban de su interior para esparcirla en torno suyo, no se vaciaban, sino que se sentían más frescos, renovados…
 
-        Y, al seguir profundizando en su interior, descubrieron que todos los pozos estaban unidos por aquello mismo que era su razón de ser: el agua.
+    Y, al seguir profundizando en su interior, descubrieron que todos los pozos estaban unidos por aquello mismo que era su razón de ser: el agua.
 
-        Así comenzó una comunicación “a fondo” entre ellos, porque las paredes del pozo dejaron de ser límites infranqueables. Se comunicaban “en profundidad”, sin importarles cómo era el brocal de uno o de otro, ya que eso era superficial y no influía en lo que había en el fondo.
+    Así comenzó una comunicación “a fondo” entre ellos, porque las paredes del pozo dejaron de ser límites infranqueables. Se comunicaban “en profundidad”, sin importarles cómo era el brocal de uno o de otro, ya que eso era superficial y no influía en lo que había en el fondo.
 
-        Eso sí: en cada pozo el agua adquiría un sabor, incluso unas propiedades distintas: era lo característico del pozo.
-        Pero el descubrimiento más sensacional después, cuando los pozos que ya vivían en su profundidad llegaron a la conclusión de que el agua que les daba la vida no nacía allí mismo, en cada uno, sino que venía para todos de un mismo lugar… y bucearon siguiendo la corriente de agua… y descubrieron… ¡el manantial!.
+    Eso sí: en cada pozo el agua adquiría un sabor, incluso unas propiedades distintas: era lo característico del pozo.
+    Pero el descubrimiento más sensacional después, cuando los pozos que ya vivían en su profundidad llegaron a la conclusión de que el agua que les daba la vida no nacía allí mismo, en cada uno, sino que venía para todos de un mismo lugar… y bucearon siguiendo la corriente de agua… y descubrieron… ¡el manantial!.
 
-        El manantial estaba allá lejos: en la gran Montaña que dominaba el país de los pozos, que apenas nadie percibía su presencia, pero que estaba allí, majestuosa, serena, pacífica… y con el secreto de la vida en su interior.
+    El manantial estaba allá lejos: en la gran Montaña que dominaba el país de los pozos, que apenas nadie percibía su presencia, pero que estaba allí, majestuosa, serena, pacífica… y con el secreto de la vida en su interior.
 
-        La montaña había estado siempre allí; unas veces apenas visible, entre brumas, otras veces radiante, siempre vigilante, y dándose cuenta de todo lo que ocurría en torno suyo…
-        Pero los pozos habían estado muy ocupados en adornar su brocal, y apenas se habían molestado en mirar a la montaña.
-        La montaña también había estado siempre aquí, en la profundidad de cada pozo, porque su manantial llegaba hasta ellos haciendo que fueran pozos.
-        Desde entonces, los pozos que habían descubierto su ser, se esforzaban en agrandar su interior y aumentar su profundidad, para que el manantial pudiera llegar con facilidad hasta ellos…
+    La montaña había estado siempre allí; unas veces apenas visible, entre brumas, otras veces radiante, siempre vigilante, y dándose cuenta de todo lo que ocurría en torno suyo…
+    Pero los pozos habían estado muy ocupados en adornar su brocal, y apenas se habían molestado en mirar a la montaña.
+    La montaña también había estado siempre aquí, en la profundidad de cada pozo, porque su manantial llegaba hasta ellos haciendo que fueran pozos.
+    Desde entonces, los pozos que habían descubierto su ser, se esforzaban en agrandar su interior y aumentar su profundidad, para que el manantial pudiera llegar con facilidad hasta ellos…
 
-        Y el agua que sacaban de sí mismos hacía que la tierra fuera embelleciendo, y transformaban el paisaje…
+    Y el agua que sacaban de sí mismos hacía que la tierra fuera embelleciendo, y transformaban el paisaje…
 
-        Mientras, allá fuera, allá fuera, en la superficie, la mayoría seguían ocupados en ampliar su brocal y en tener cada vez más cosas…
+    Mientras, allá fuera, allá fuera, en la superficie, la mayoría seguían ocupados en ampliar su brocal y en tener cada vez más cosas…
 
 ## Cuestionario
 
@@ -101,4 +101,19 @@ _Fuente: [Catholic Link](https://catholic-link.com/imagenes/galeria-doctores-de-
 	* Ruido / Silencio.
 	* Mirarse a sí mismo / Mirar la montaña
 
+6. Leé detenidamente las siguientes citas evangélicas. Comentá brevemente, que relación guardan las palabras de Jesús (sobre todo, las frases resaltadas en negrita) con la parábola de los pozos. 
 
+??? info "Citas bíblicas"
+    >"No acumulen tesoros en la tierra, donde la polilla y la herrumbre los consumen, y los ladrones perforan las paredes y los roban. Acumulen, en cambio, tesoros en el cielo, donde no hay polilla ni herrumbre que los consuma, ni ladrones que perforen y roben. **Allí donde esté tu tesoro, estará también tu corazón"**. 
+    > Mateo 6, 19-21
+
+    >"No hay árbol bueno que dé frutos malos, ni árbol malo que dé frutos buenos: cada árbol se reconoce por su fruto. No se recogen higos de los espinos ni se cosechan uvas de las zarzas. El hombre bueno saca el bien del tesoro de bondad que tiene en su corazón. El malo saca el mal de maldad, porque **de la abundancia del corazón habla la boca**".
+    > Lucas 6, 43-45
+
+7. Describí brevemente la relación que existe entre los siguientes elementos y aquellos presentes en la parábola: 
+
+    a. Palabras del personaje "Mesa" de la obra "Partición de mediodía" de Paul Claudel: "¿Y quién dice que eres la felicidad? ¡Ah, tú no eres la felicidad, tú eres algo que está en el lugar de la felicidad!".
+
+    b. La publicidad del Banco Frnacés "Guitarra": 
+
+    <iframe width="560" height="315" src="https://www.youtube.com/embed/PD8j5zAnAB4" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>

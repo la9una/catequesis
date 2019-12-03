@@ -2,62 +2,72 @@
 <urlset xmlns="http://www.sitemaps.org/schemas/sitemap/0.9">
     <url>
      <loc>http://www.rauljesus.xyz/catequesis/</loc>
-     <lastmod>2019-10-09</lastmod>
+     <lastmod>2019-12-03</lastmod>
      <changefreq>daily</changefreq>
     </url>
     <url>
      <loc>http://www.rauljesus.xyz/catequesis/creemos/hierofanias/</loc>
-     <lastmod>2019-10-09</lastmod>
+     <lastmod>2019-12-03</lastmod>
      <changefreq>daily</changefreq>
     </url>
     <url>
      <loc>http://www.rauljesus.xyz/catequesis/creemos/las5vias/</loc>
-     <lastmod>2019-10-09</lastmod>
+     <lastmod>2019-12-03</lastmod>
      <changefreq>daily</changefreq>
     </url>
     <url>
      <loc>http://www.rauljesus.xyz/catequesis/creemos/leynatural/</loc>
-     <lastmod>2019-10-09</lastmod>
+     <lastmod>2019-12-03</lastmod>
      <changefreq>daily</changefreq>
     </url>
     <url>
      <loc>http://www.rauljesus.xyz/catequesis/creemos/cuestionario/</loc>
-     <lastmod>2019-10-09</lastmod>
+     <lastmod>2019-12-03</lastmod>
      <changefreq>daily</changefreq>
     </url>
     <url>
      <loc>http://www.rauljesus.xyz/catequesis/creemos/trabajoPractico/</loc>
-     <lastmod>2019-10-09</lastmod>
+     <lastmod>2019-12-03</lastmod>
      <changefreq>daily</changefreq>
     </url>
     <url>
      <loc>http://www.rauljesus.xyz/catequesis/palabra/genesis/</loc>
-     <lastmod>2019-10-09</lastmod>
+     <lastmod>2019-12-03</lastmod>
      <changefreq>daily</changefreq>
     </url>
     <url>
      <loc>http://www.rauljesus.xyz/catequesis/palabra/genesisCuestionario/</loc>
-     <lastmod>2019-10-09</lastmod>
+     <lastmod>2019-12-03</lastmod>
      <changefreq>daily</changefreq>
     </url>
     <url>
      <loc>http://www.rauljesus.xyz/catequesis/palabra/hermeneutica/</loc>
-     <lastmod>2019-10-09</lastmod>
+     <lastmod>2019-12-03</lastmod>
      <changefreq>daily</changefreq>
     </url>
     <url>
      <loc>http://www.rauljesus.xyz/catequesis/palabra/lectio/</loc>
-     <lastmod>2019-10-09</lastmod>
+     <lastmod>2019-12-03</lastmod>
      <changefreq>daily</changefreq>
     </url>
     <url>
      <loc>http://www.rauljesus.xyz/catequesis/vida/santidad/</loc>
-     <lastmod>2019-10-09</lastmod>
+     <lastmod>2019-12-03</lastmod>
      <changefreq>daily</changefreq>
     </url>
     <url>
      <loc>http://www.rauljesus.xyz/catequesis/vida/canonizacion/</loc>
-     <lastmod>2019-10-09</lastmod>
+     <lastmod>2019-12-03</lastmod>
+     <changefreq>daily</changefreq>
+    </url>
+    <url>
+     <loc></loc>
+     
+     <changefreq>daily</changefreq>
+    </url>
+    <url>
+     <loc>http://www.rauljesus.xyz/catequesis/anexos/programa/</loc>
+     <lastmod>2019-12-03</lastmod>
      <changefreq>daily</changefreq>
     </url>
 </urlset>
